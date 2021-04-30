@@ -1,1 +1,1 @@
-This is a simple recipe of making PANIPURI.
+This is a simple recipe of making scrambled eggs.
